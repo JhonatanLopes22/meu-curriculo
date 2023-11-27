@@ -2,6 +2,8 @@
 ## jhonatanlopes22@hotmail.com - (19) 98255-8888
 > Eu sou um castigo de Deus. E se você não cometeu grandes pecados, Deus não teria enviado um castigo como eu. Gengis Khan
 
+![alt text](imagem.png)
+
 ### Objetivo: Técnico de Informática
 
 ### Escolaridade
