@@ -8,4 +8,10 @@
 - Técnico em Informática, Senac Americana [2023 - 2025]
 
 ### Cursos Livres
-Nenhum Por Enquanto
+Operador de Empiladeira, SENAI Santa Barbara Do Oeste
+Hardware, Escola Gestão Santa Barbara Do Oeste
+
+### Dados Pessoais
+28 Anos
+Casado
+Brasileiro
